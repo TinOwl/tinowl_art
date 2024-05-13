@@ -1,3 +1,3 @@
 # tinowl_art
 
-A place for the sort of kind of art stuff i kind of sort of do. 
+Hello, I' TinOwl. This is a place for the sort of kind of art stuff i kind of sort of do. 
